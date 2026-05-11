@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Audition for macOS with advanced Adobe Audition for macOS Filter | EQ + lower-thirds, the #1 filter. Includes EQ and lower-thirds for a smoother and more creative
 
 
 
